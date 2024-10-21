@@ -134,3 +134,6 @@ $$lowkey \space\ only \space\ play \space\ for \space\ my \space\ friends \space
 ![](https://files.catbox.moe/5kofqu.png)
 ![](https://files.catbox.moe/aqgb5w.png)
 ![](https://files.catbox.moe/qm1rf6.png)
+![](https://files.catbox.moe/gxf204.png)
+![](https://files.catbox.moe/qv59bj.png)
+![](https://files.catbox.moe/f46tsa.png)
