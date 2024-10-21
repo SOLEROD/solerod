@@ -17,10 +17,10 @@ $$lowkey \space\ only \space\ play \space\ for \space\ my \space\ friends \space
 [me](https://rentry.co/zucc) ${\color{#99c3f1}─}$ [boyfriend](https://github.com/hotmaiiled) ${\color{#99c3f1}─}$ [last.fm](https://www.last.fm/user/co_rd)  ${\color{#99c3f1}─}$ [patreon](https://www.patreon.com/4cordy/about)
 
 
-![tumblr_3d2b5b1f26d5814ca3649b2a02887962_e896ca52_100](https://github.com/user-attachments/assets/568acb15-42e6-4075-83dd-6ace738b41ef)
+![](https://files.catbox.moe/11kfo6.png)
 ![stamp41](https://github.com/user-attachments/assets/f5d3cff7-cf1a-4acf-93c1-b69dcbe0ff83)
 ![stamp40](https://github.com/user-attachments/assets/c4ea9b9d-56f6-425c-a2a1-6348be4a0870)
-![stamp39](https://github.com/user-attachments/assets/c6e477de-dec4-4d4e-8cf3-b0dc93c2d8c7)
+![stamp39](https://files.catbox.moe/66ftxc.gif)
 ![stamp38](https://github.com/user-attachments/assets/d317a573-59c9-43f0-84a1-c1f02d41f8fb)
 ![stamp37](https://github.com/user-attachments/assets/9ded5174-13bf-4ff5-b9fa-7a97f033b2cc)
 ![stamp36](https://github.com/user-attachments/assets/6ea2635c-7e95-40c5-b5fd-1a52f5b27695)
