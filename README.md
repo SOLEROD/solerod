@@ -8,6 +8,10 @@ $$i \space\ really \space\ like \space\ {\color{#99c3f1}the} \space\ {\color{#99
 
 $$lowkey \space\ only \space\ play \space\ for \space\ my \space\ friends \space\ ⊂(･ω･*⊂)	$$
 
+<br/>
+<p align="center">
+<sup>ceo of bill gates/steve jobs yaoi</sup> <img src="https://i.postimg.cc/KvgdfcY8/favicon-5.png"/></p>
+
 
 ![stamp72](https://github.com/user-attachments/assets/eec3e0a1-53f5-43b2-8f27-7ef2742e9652)
 ![usuk](https://github.com/user-attachments/assets/b54e8949-b361-48a1-a85a-f37b9c772b71)
