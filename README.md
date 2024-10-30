@@ -1,24 +1,10 @@
-$$ヾ(。＞＜)シ \space\ my \space\ name \space\ is \space\ {\color{#99c3f1}blake} \space\ + \space\ im \space\ 18 \space\ . \space\ .$$
+brah
 
-$${\color{#99c3f1}dni} \space\ if \space\ youre \space\ ignorant \space\ or \space\ named \space\ bowie \space\ ´ཀ`$$
-
-$$+$$
-
-$$i \space\ really \space\ like \space\ {\color{#99c3f1}the} \space\ {\color{#99c3f1}office} \space\ and \space\ {\color{#99c3f1}tech}\space\ {\color{#99c3f1}billionaires}.$$
-
-$$lowkey \space\ only \space\ play \space\ for \space\ my \space\ friends \space\ ⊂(･ω･*⊂)	$$
-
-<br/>
-<p align="center">
-<sup>ceo of bill gates/steve jobs yaoi</sup> <img src="https://i.postimg.cc/KvgdfcY8/favicon-5.png"/></p>
 
 
 ![stamp72](https://github.com/user-attachments/assets/eec3e0a1-53f5-43b2-8f27-7ef2742e9652)
 ![usuk](https://github.com/user-attachments/assets/b54e8949-b361-48a1-a85a-f37b9c772b71)
 ![stamp71](https://github.com/user-attachments/assets/2caec883-7e44-434d-a3e8-a2b790d26767)
-
-
-[me](https://rentry.co/zucc) ${\color{#99c3f1}─}$ [boyfriend](https://github.com/hotmaiiled) ${\color{#99c3f1}─}$ [last.fm](https://www.last.fm/user/co_rd)  ${\color{#99c3f1}─}$ [patreon](https://www.patreon.com/4cordy/about)
 
 
 ![](https://files.catbox.moe/11kfo6.png)
