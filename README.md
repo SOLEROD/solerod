@@ -1,5 +1,5 @@
 <p align="center">
-im like people with did except my alters are tom cruise and bill gates. i have really bad bpd and im dyslexic
+19yro he/him. bpdbipolar audhd , Im Taken By Dr Wilson From House MD
 </p>
 
 
