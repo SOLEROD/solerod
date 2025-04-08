@@ -1,5 +1,6 @@
-brah
-
+<p align="center">
+im like people with did except my alters are tom cruise and bill gates. i have really bad bpd and im dyslexic
+</p>
 
 
 ![stamp72](https://github.com/user-attachments/assets/eec3e0a1-53f5-43b2-8f27-7ef2742e9652)
