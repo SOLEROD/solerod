@@ -1,5 +1,5 @@
 <p align="center">
-19yro he/him. bpdbipolar audhd , Im Taken By Dr Wilson From House MD
+19yro he/him. bpdbipolar audhd , Im Taken By Dr Wilson From House MD. highkey dni if youre a hetalia newgen or a fan at all i hate you im america irl
 </p>
 
 
