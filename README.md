@@ -3,7 +3,7 @@
 
 [tom](https://rentry.co/coked-up) [quin](https://rentry.co/quin) [cord](https://rentry.co/leviath)
 
-i have bpd/bipolar + audhd n dyslexia so im kinda mega retarded and super crazy just dont interact if youre not chill with someone who will constantly be off the wall idk. i have psychosis which is really easily mistaken for DID. i dont have that! ^_^
+i have bpd/bipolar + audhd n dyslexia so im kinda mega retarded and super crazy just dont interact if youre not chill with someone who will constantly be off the wall idk. i have psychosis which is really easily mistaken for DID. i dont have that! ^_^ i like **tom cruise**, **robert sean leonard**, **dexter**, and house md . . . i am possessive over my f/os *itches my baka head
 
 dni if your name is bowie/callie/buckfever whatever the fuck you go by now youre a pussy and you want to be me so bad its getting egregious. i wish i was being egotistical when i say that you want to live inside my head. um genuinely dont interact if you like hetalia because i like it more LOL youre all newgens and you just piss me off beyond comprehension. not targeted to anyone in specific i just hate you all -_- dont talk to me about tom cruise rsl or house unless i know you. im possessive over my interests can you tell
 
@@ -171,3 +171,19 @@ my triggers are all over the place and theyre difficult to put down in a coheren
 ![](https://file.garden/ZxWiLm8hkRvyuHo8/tumblr_1d170e2f64bc6570b20053f02696e07e_7265c5c5_100.png)
 ![](https://files.catbox.moe/lsksis.png)
 ![](https://files.catbox.moe/6w3pjb.png)
+![](https://i.postimg.cc/Znp1BQHb/stamp135.png)
+![](https://i.postimg.cc/CLwvsdLH/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313038353032363434.webp)
+![](https://i.postimg.cc/JznPSgXs/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313038353032363434.webp)
+![](https://i.postimg.cc/3NTt6xjh/432990003-1bc280c3-e560-4bee-a458-73f58624b2d7.gif)
+![](https://i.postimg.cc/sgNwzcPw/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313038353032363434.gif)
+![](https://i.postimg.cc/zvFx1Ypg/432990006-92b10d64-147a-44d4-9e7f-05276866a101.png)
+![](https://i.postimg.cc/vT7GFTpt/stamp136.gif)
+![](https://i.postimg.cc/h4J0cxZG/stamp144.gif)
+![](https://i.postimg.cc/SNC7z4hF/stamp145.gif)
+![](https://i.postimg.cc/59ZS00DS/stamp146.gif)
+![](https://i.postimg.cc/W4B04YHb/stamp147.gif)
+![](https://i.postimg.cc/j2KNHwTp/stamp148.gif)
+![](https://i.postimg.cc/C1bknC3C/stamp149.png)
+![](https://i.postimg.cc/mrPrM45N/stamp150.gif)
+![](https://i.postimg.cc/4NGb12Zh/stamp151.gif)
+![](https://i.postimg.cc/tCzdvdCv/stamp152.gif)
