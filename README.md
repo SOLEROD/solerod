@@ -3,13 +3,13 @@
 
 [tom](https://rentry.co/coked-up) [quin](https://rentry.co/quin) [cord](https://rentry.co/leviath)
 
-i have bpd/bipolar + audhd n dyslexia so im kinda mega retarded and super crazy just dont interact if youre not chill with someone who will constantly be off the wall idk. i have psychosis which is really easily mistaken for DID. i dont have that! ^_^ i like **tom cruise**, **robert sean leonard**, **dexter**, and house md . . . i am possessive over my f/os *itches my baka head
+i have bpd/bipolar + audhd n dyslexia so im kinda mega retarded and super crazy just dont interact if youre not chill with someone who will constantly be off the wall idk. i have psychosis which is really easily mistaken for DID. i dont have that! ^_^ i like **tom cruise**, **robert sean leonard**, **big time rush**, *dexter*, and house md . . . i am possessive over my f/os *itches my baka head
 
-dni if your name is bowie/callie/buckfever whatever the fuck you go by now youre a pussy and you want to be me so bad its getting egregious. i wish i was being egotistical when i say that you want to live inside my head. um genuinely dont interact if you like hetalia because i like it more LOL youre all newgens and you just piss me off beyond comprehension. not targeted to anyone in specific i just hate you all -_- dont talk to me about tom cruise rsl or house unless i know you. im possessive over my interests can you tell
+dni if your name is bowie/callie/buckfever whatever the fuck you go by now youre a pussy and you want to be me so bad its getting egregious. um genuinely dont interact if you like hetalia because i like it more LOL youre all newgens and you just piss me off. not targeted to anyone in specific i just hate you all -_- dont talk to me about tom cruise rsl or house unless i know you. im possessive over my interests can you tell
 
-This is only for ponytown so Hi. if you see me sitting around Dont be scared of me. im nice i promise. im super anti proship/tcc and whatever the fuck else is under either of those umbrellas. if you like stuff they usually do or type a certain way im going to hate you idk man idfk i just hate people really easily. i promise i'm a cool guy i just don't look for new friends because people think i'm intense looooool
+this is only for ponytown so Hi. if you see me sitting around Dont be scared of me. im nice i promise. im super anti proship/tcc and whatever the flip else is under either of those umbrellas. if you like stuff they usually do or type a certain way im going to hate you idk man idfk i just hate people really easily. i promise i'm a cool guy i just don't look for new friends because people think i'm intense looooool
 
-my triggers are all over the place and theyre difficult to put down in a coherent way but i definitely Have triggers...Somewhere in my head. i loooooove tom cruise bye bye
+i love tom cruise and big time rush bye bye
 </p>
 
 
