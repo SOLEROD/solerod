@@ -1,7 +1,7 @@
 <p align="center">
 19yro he/him. bpdbipolar audhd , Im Taken By Dr Wilson From House MD. alfred f jones IN REAL LIFE (not you!) 
 
-[tom](https://rentry.co/coked-up) [quin](https://rentry.co/quin) [cord](https://rentry.co/leviath)
+[tom](https://rentry.co/coked-up) [jamie](https://rentry.co/dscent) [quin](https://rentry.co/quin) [cord](https://rentry.co/leviath)
 
 i have bpd/bipolar + audhd n dyslexia so im kinda mega retarded and super crazy just dont interact if youre not chill with someone who will constantly be off the wall idk. i have psychosis which is really easily mistaken for DID. i dont have that! ^_^ i like **tom cruise**, **robert sean leonard**, **big time rush**, *dexter*, and house md . . . i am possessive over my f/os *itches my baka head
 
