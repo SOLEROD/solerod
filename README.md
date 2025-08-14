@@ -4,7 +4,7 @@
 
 [tom](https://rentry.co/coked-up) [jamie](https://rentry.co/dscent) [quin](https://rentry.co/quin) [cord](https://rentry.co/leviath)
 
-i have bipolar/npd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **logan henderson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, and **big time rush**.
+i have bipolar/npd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **logan henderson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, mk1, and **big time rush**.
 
 **dni** if you associate with proship/tcc. i don't make exceptions (×_×) although i'm pretty lenient with most stuff. 
 
