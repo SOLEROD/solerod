@@ -2,7 +2,7 @@
 19yro he/him. bipolar aspd
 </p>
 
-i have bipolar/npd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
+i have bipolar/aspd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
 
 **dni** if you're an anti. i am proship
 
