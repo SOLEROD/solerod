@@ -1,12 +1,10 @@
 <p align="center">
-19yro he/him. bipolar npd , taken 3.22.2020
+19yro he/him. bipolar aspd
 </p>
 
-[tom](https://rentry.co/coked-up) [jamie](https://rentry.co/dscent) [quin](https://rentry.co/quin) [will](https://rentry.co/SMlTTY)
+i have bipolar/npd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
 
-i have bipolar/npd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **will smith2** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, **stranger things**, mk1, *big time rush*, and **nhl** (specifically the san jose sharks.) i love willmack <3
-
-**dni** if you associate with proship/tcc. i don't make exceptions (×_×) although i'm pretty lenient with most stuff. 
+**dni** if you're an anti. i am proship
 
 i love hetalia and everyday host byebye 
 </p>
@@ -186,3 +184,11 @@ i love hetalia and everyday host byebye
 ![](https://i.postimg.cc/mrPrM45N/stamp150.gif)
 ![](https://i.postimg.cc/4NGb12Zh/stamp151.gif)
 ![](https://i.postimg.cc/tCzdvdCv/stamp152.gif)
+![](https://i.postimg.cc/85FFH7bb/both.gif)
+![](https://i.postimg.cc/zBLLjykw/buttsex.jpg)
+![](https://i.postimg.cc/85FFH7bH/eatstamp.gif)
+![](https://i.postimg.cc/RFjWbvPL/edededdy.gif)
+![](https://i.postimg.cc/zBLLjykx/malcolm.gif)
+![](https://i.postimg.cc/G2Z4SbMG/mh.gif)
+![](https://i.postimg.cc/637708hH/mitm.gif)
+![](https://i.postimg.cc/vBp4SGPr/supernatural.gif)
