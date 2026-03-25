@@ -1,8 +1,8 @@
 <p align="center">
-20yro he/him. bipolar autistic aspd
+mal ᵒᵘ bo. autistic 20yro
 </p>
 
-i have bipolar/aspd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **arthur kirkland** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
+(＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **arthur kirkland** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
 
 **byi** i'm a loser fujo yaoi addicted pervert. YOU'VE BEEN WARNED!
 
