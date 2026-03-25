@@ -1,12 +1,12 @@
 <p align="center">
-19yro he/him. bipolar aspd
+20yro he/him. bipolar autistic aspd
 </p>
 
-i have bipolar/aspd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **robert sean leonard** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *microapple*, *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
+i have bipolar/aspd so i struggle with emotional situations. (＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **arthur kirkland** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
 
-**dni** if you're an anti. i am proship
+**byi** i'm a loser fujo yaoi addicted pervert. YOU'VE BEEN WARNED!
 
-i love hetalia and everyday host byebye 
+i love hetalia and qsmp byebye
 </p>
 
 
